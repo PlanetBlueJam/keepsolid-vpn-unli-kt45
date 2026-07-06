@@ -1,4 +1,4 @@
-
+Get the ultimate Encrypt.me app with new App for Encrypt.me - dedicated-IP and server-locations. Featuring dedicated-IP and server-locations, it's the best choice for secure and
 
 
 
